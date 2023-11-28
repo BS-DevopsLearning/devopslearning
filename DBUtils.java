@@ -1,1 +1,1 @@
-Diamonds :)
+Diamonds and gold :)
